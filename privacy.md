@@ -1,6 +1,6 @@
 Your Privacy Matters
 
-Last modified: Oct 20, 2019
+Last modified: June 1, 2020
 
 When you use VPN Plus, you trust us with your information. This document is meant to help you understand what data we collect, why we collect it, and what we do with it. 
 
