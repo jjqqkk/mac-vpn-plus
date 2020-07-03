@@ -53,11 +53,8 @@ Both apps have the same user experience, the only difference is on the VPN proto
 
 ### Contact and support
 
-For any question, feel free to contact: admin@tigervpns.co.uk
+For any question, feel free to contact: hi@jjqqkk.icu
 
-More VPN products on our website:
-
-https://www.freevpn.pw/
 
 We will be glad to hear from you! 
 
